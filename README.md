@@ -1,1 +1,1 @@
-Personal Home Page: http://ufukuzun.com
+Personal Blog: http://ufukuzun.wordpress.com
